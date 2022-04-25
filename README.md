@@ -1,2 +1,2 @@
 
-Berat Koçak's Curriculum Vitae
+My current resume
